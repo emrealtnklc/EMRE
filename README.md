@@ -8,4 +8,4 @@ half-time musician, full-time developer, some-time normal person
 
 
 for more information about me -> 
-ig :altunkilicemre
+instagram :altunkilicemre
